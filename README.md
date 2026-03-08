@@ -1,2 +1,7 @@
-# DATABASEUSER
-Database User telegram ID
+# 📁 DATABASE ID USER TELEGRAM KAWAKI CRASHER
+
+Dibuat oleh: **AstaaOfficial**  
+Tahun: 2026
+
+---
+
